@@ -1,1 +1,1 @@
-GitHub you're a B word
+github pages issue solved
